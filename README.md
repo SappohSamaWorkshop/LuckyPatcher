@@ -21,3 +21,12 @@ I ([Bluscream](https://github.com/Bluscream)) created this repository to give pe
 
 ![https://i.imgur.com/X5x2M1u.png](https://i.imgur.com/X5x2M1u.png)
 </details>
+
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
